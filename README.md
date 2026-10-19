@@ -1,1 +1,0 @@
-# rip-nik.github.io
